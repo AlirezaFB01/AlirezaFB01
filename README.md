@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @AlirezaFB01
+- 👀 I’m interested in coding and gaming.
+- 🌱 I’m currently learning various programming languages and new technologies.
+- 💞️ I’m looking to collaborate on coding projects and video games.
+- 📫 How to reach me: You can reach me via email at alireza757575@gmail.com or connect with me on LinkedIn: https://www.linkedin.com/in/alireza-feizbakhsh-98706772/
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: In my free time, I play video games and always look for new challenges in the world of programming!
